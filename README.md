@@ -1,2 +1,0 @@
-# shanetemple
-Temple Creative
